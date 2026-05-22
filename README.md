@@ -1346,6 +1346,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**The Emirates FA Cup**](https://www.youtube.com/@thefacup) (Official FA Cup highlights and match coverage)
 
+[**The Masters**](https://www.youtube.com/@TheMasters) 
+
 [TNT Sports Brasil](https://www.youtube.com/@TNTSportsBR) (Brazilian football highlights and more)
 
 [**UAE SWAT Challenge**](https://www.youtube.com/@uaeswatchallenge) 
