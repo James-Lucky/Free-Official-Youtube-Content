@@ -897,6 +897,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Shemaroo Movies**](https://www.youtube.com/@shemaroomovies) (Full-length movies and clips)
 
+[**Shout! Studios**](https://www.youtube.com/@ShoutStudios) (Officially licensed full movies and TV shows from various genres) (Highly recommend watching [Infernal Affairs](https://www.youtube.com/watch?v=_8M1-1wLpKU))
+
 [**Shout! Factory TV**](https://www.youtube.com/@ShoutFactoryTV) (Officially licensed full movies and TV shows from various genres)
 
 [**Sony Pictures Classics**](https://www.youtube.com/@SonyPicturesClassics) (Trailers for indie, arthouse, and foreign films)
