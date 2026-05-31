@@ -823,8 +823,6 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**Blockbuster English Movies**](https://www.youtube.com/@blockbusterenglishmovies) (Full movies)
 
-[**Bondlt Media Capital/Buffalo 8**](https://www.youtube.com/@buffalo8moviechannel) (Movies, tv shows, documentaries, trailers...)
-
 [**chn classic/經典華語老電影**](https://www.youtube.com/@chnclassic) (Full 1080p chinese movies)
 
 [**Cinema No.8 - HK Movie**](https://www.youtube.com/@8-hkmovie) (Full Chinese (HK) movies)
