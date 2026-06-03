@@ -825,6 +825,8 @@ This list will only focus on official YouTube channels who have the rights to po
 
 [**chn classic/經典華語老電影**](https://www.youtube.com/@chnclassic) (Full 1080p chinese movies)
 
+[**美亞影院 Cinema Mei Ah - 香港電影 (HK Movie)**](https://www.youtube.com/@CinemaMeiAh) 
+
 [**Cinema No.8 - HK Movie**](https://www.youtube.com/@8-hkmovie) (Full Chinese (HK) movies)
 
 [**CineMo**](https://www.youtube.com/@CineMoChannel) (Full Tagalog/Filipino classic and dubbed movies)
