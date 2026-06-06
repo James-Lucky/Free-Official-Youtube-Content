@@ -1513,7 +1513,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 ## Contributing to this List (Hacktoberfest Friendly! 🎃)
 
-Don't know how to code? Great! This project is for you! We welcome contributions to expand and improve this list! This project is also a great way to contribute to **Hacktoberfest**. **This project doesn't need any coding skills in order to contribute**. You just need to **read `CONTRIBUTING.md` and star this list/project** in order to start contributing to the project. [If you want me to support me and the list, use my referral link next time you renew/buy your TorBox subscription!](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3) You receive an extra 7 days times the number of months purchased added to the plan you purchased [if you use my referral code.](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3)  
+Don't know how to code? Great! This project is for you! We welcome contributions to expand and improve this list! This project is also a great way to contribute to **Hacktoberfest**. 
+**No technical expertise is required to contribute to Free Official Youtube Content. This project doesn't need any coding skills in order to contribute**. You just need to **read `CONTRIBUTING.md` and star this list/project** in order to start contributing to the project. [If you want me to support me and the list, use my referral link next time you renew/buy your TorBox subscription!](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3) You receive an extra 7 days times the number of months purchased added to the plan you purchased [if you use my referral code.](https://torbox.app/subscription?referral=d14ecebf-c144-4548-9762-501bd6cd62a3)  
 
 ---
 
