@@ -1,4 +1,4 @@
-v# Free Official YouTube Content: Movie, Anime, Cartoon
+# Free Official YouTube Content: Movie, Anime, Cartoon
 
 If you are overwhelmed, just scroll down to read and use the list.
 
