@@ -1323,6 +1323,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**Olympics**](https://www.youtube.com/Olympics) (Olympic Games Archives, Highlights and Others)
 
+[**On Ice Perspectives**](https://www.youtube.com/@OnIcePerspectives/) 
+
 [**Overtime**](https://www.youtube.com/@overtime) (Highlights and stories focusing on the next generation of athletes)
 
 [Paralympics](https://www.youtube.com/@paralympics) (Paralympic Games Archives, Highlights and Others)
