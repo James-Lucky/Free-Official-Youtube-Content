@@ -696,8 +696,6 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Lionsgate Movies**](https://www.youtube.com/@LionsgateMovies) (Trailers and some extra content)
 
-[**MAFIA the GAME**](https://www.youtube.com/@foundersfundmafia) (Tech industry legends/a group of tech leaders play Mafia )
-
 [**Marvel**](https://www.youtube.com/@marvel) (Trailers, clips, and exclusive content from the Marvel Cinematic Universe)
 
 [**MTV UK**](https://www.youtube.com/@MTVUK) (Music videos, reality show clips, and entertainment content)
@@ -1011,6 +1009,8 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 [**Law & Order**](https://www.youtube.com/@LawAndOrderNBC) (Long clips and compilations)
 
 [**LOL! Network**](https://www.youtube.com/@LOLNetwork) (U.S. comedy TV shows and a few movies)
+
+[**MAFIA the GAME**](https://www.youtube.com/@foundersfundmafia) (Tech industry legends/a group of tech leaders play Mafia)
 
 [**Master Chef UK**](https://www.youtube.com/@MasterChefUK) (Full episodes and clips)
 
