@@ -1407,6 +1407,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**BLAST Premier VOD Archive**](https://www.youtube.com/@BLASTPremierVOD)
 
+[**Classic Tetris**](https://www.youtube.com/@ClassicTetris) 
+
 [**ESL Archives**](https://www.youtube.com/eslarchives)
 
 [**ESL Counter-Strike**](https://www.youtube.com/@ESLCS) ([GOLD GOLD GOLD!](https://www.youtube.com/@ohnepixel))
