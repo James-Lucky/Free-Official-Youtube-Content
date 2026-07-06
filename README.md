@@ -1353,6 +1353,8 @@ NPB [Pacific League English](https://www.youtube.com/@PacificLeagueTVEngofficial
 
 [**Shooting USA**](https://www.youtube.com/@ShootingUSA/) 
 
+[**Skating ISU**](https://www.youtube.com/@SkatingISU)
+
 [**Sky Sports**](https://www.youtube.com/@skysports) (Highlights, clips, though mostly extra content)
 
 [**Sky Sports Premiere League**](https://www.youtube.com/@skysportspremierleague) (Highlights)
