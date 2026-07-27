@@ -60,7 +60,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Cartoon PowerUP**](https://www.youtube.com/@CartoonPowerUp) (Inactive, mostly anime, some cartoons)
 
-[**Chibi Maruko Channel**](https://www.youtube.com/@chibimarukochannelofficial) 
+[**Chibi Maruko Channel**](https://www.youtube.com/@chibimarukochannelofficial) (Full episodes and clips of the Japanese family anime) 
 
 [**Crunchyroll Collection**](https://www.youtube.com/@crunchyroll) (Clips, trailers, and openings/endings from popular anime)
 
@@ -126,7 +126,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**AniDom**](https://www.youtube.com/@AniDom) (Fox animated shows, mostly clips)
 
-[**Aqua Teen Hunger Force**](https://www.youtube.com/@AquaTeen-HungerForce) 
+[**Aqua Teen Hunger Force**](https://www.youtube.com/@AquaTeen-HungerForce) (Surreal adult comedy with absurd and dark humor.)
 
 [**Avatar: The Last Airbender**](https://www.youtube.com/@avatarthelastairbender) (Official clips, compilations, and full episodes)
 
@@ -258,7 +258,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Vivziepop/SpindleHorse**](https://www.youtube.com/@SpindleHorse) (Not suitable for kids, full episodes and related content)
 
-[**Wallace & Gromit**](https://www.youtube.com/@WallaceAndGromitOfficial) 
+[**Wallace & Gromit**](https://www.youtube.com/@WallaceAndGromitOfficial) (Full films, clips, compilations, and live streams)
 
 [**WB Kids**](https://www.youtube.com/@WBKids) (A mix of clips and full episodes from the Warner Bros. animation library)
 
@@ -302,7 +302,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**H2O - just add water**](https://www.youtube.com/@h2o.official) (Full episodes of H2O - just add water and Mako Mermaids)
 
-[**Hello Jadoo TV**](https://www.youtube.com/hellojadooya)
+[**Hello Jadoo TV**](https://www.youtube.com/hellojadooya) (Full episodes and clips of the Korean kids animation)
 
 [**Horrid Henry**](https://www.youtube.com/@HorridHenry) (Full episodes of the British animated series)
 
@@ -450,7 +450,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Frontline PBS**](https://www.youtube.com/@frontline) (Investigative Journalism)
 
-[**From the Vault of MIT**](https://www.youtube.com/@FromTheVaultofMIT) 
+[**From the Vault of MIT**](https://www.youtube.com/@FromTheVaultofMIT) (Historical MIT science, technology, and archival footage)
 
 [**Grow**](https://www.youtube.com/channel/UCCYhvWD88Mbd2M14GqpPM9A/featured) (Full documentaries)
 
@@ -468,7 +468,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Kinolibrary**](https://www.youtube.com/@thekinolibrary) (Archival and restoring of high quality public domain footage)
 
-[**Lawrence Livermore National Laboratory**](https://www.youtube.com/@LivermoreLab/) 
+[**Lawrence Livermore National Laboratory**](https://www.youtube.com/@LivermoreLab/) (Science, technology, research, and national-lab videos) 
 
 [**Look in The Past War Archives**](https://www.youtube.com/@LookinThePastWarArchives) (Restored and colorized historical war footage and documentaries)
 
@@ -484,7 +484,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Moonpans**](https://www.youtube.com/@Moonpans/) (Apollo Panoramas and upscaled Apollo Mission Footage) 
 
-[**NASA**](https://www.youtube.com/@NASA) (live, Informative videos and some full original documentaries)
+[**NASA**](https://www.youtube.com/@NASA) (live, Informative videos and some full original documentaries) 
 
 [**NASA's Ames Research Center**](https://www.youtube.com/@NASAAmes) (Clips from documentaries and tests)
 
@@ -500,7 +500,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**NASA Video**](https://www.youtube.com/@nasagovvideo) (Videos from NASA, not all in English)
 
-[**NASA Science**](https://www.youtube.com/@NASAScience)
+[**NASA Science**](https://www.youtube.com/@NASAScience) (Space, astronomy, science, missions, and discovery videos)
 
 [**National Geographic**](https://www.youtube.com/@NatGeo) (Full episodes and clips)
 
@@ -534,7 +534,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Sen**](https://www.youtube.com/@Sen) (Earth from space in 4K | 4K Livestream of Earth from Space | Live Views from ISS)
 
-[**Shuttlesource**](https://www.youtube.com/@Shuttlesource) 
+[**Shuttlesource**](https://www.youtube.com/@Shuttlesource) (Rare Space Shuttle footage, launches, and mission archives)
 
 [**Smithsonian Channel**](https://www.youtube.com/@SmithsonianChannel) (History, science, and culture documentaries produced by the Smithsonian Institution.)
 
@@ -542,7 +542,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Standart**](https://www.youtube.com/channel/UCZUkQij64MCMH-3b1ycUGjg/featured) (Full documentaries)
 
-[**Steve Jobs Archive**](https://www.youtube.com/@Steve-Jobs-Archive) 
+[**Steve Jobs Archive**](https://www.youtube.com/@Steve-Jobs-Archive) (Steve Jobs talks, interviews, speeches, and archival footage)
 
 [**Survive Plus**](https://www.youtube.com/@SurvivePlus/) (Full documentaries) 
 
