@@ -590,6 +590,8 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Animation World Network**](https://www.youtube.com/@AWN-AnimationWorldNetwork) (Trailers, clips and Featurettes from upcoming animated movies (including fully animated movies and CG animated movies/movies who use a lot of CGI constantly))
 
+[**Architectural Digest**](https://www.youtube.com/@Archdigest) 
+
 [**Apple TV**](https://www.youtube.com/@AppleTV) (Trailers, sneak peeks, and clips for Apple TV original content)
 
 [**ATV 亞洲電視**](https://www.youtube.com/@atvhongkong) (Old Free Hong Kong TV)
@@ -701,6 +703,8 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 [**Lionsgate Movies**](https://www.youtube.com/@LionsgateMovies) (Trailers and some extra content)
 
 [**Marvel**](https://www.youtube.com/@marvel) (Trailers, clips, and exclusive content from the Marvel Cinematic Universe)
+
+[**MARVELOUS The Show**](https://www.youtube.com/@marveloustheshow) 
 
 [**MTV UK**](https://www.youtube.com/@MTVUK) (Music videos, reality show clips, and entertainment content)
 
@@ -912,7 +916,7 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Spider-Man**](https://www.youtube.com/spiderman) (Clips, extras and Movie tie-ins like "the spider within")
 
-[**The Asylum**](https://www.youtube.com/@theasylum) (The official home for trailers of mockbusters and B-movies)
+[**The Asylum**](https://youtube.com/@theasylummoviechannel) (The official home for trailers of mockbusters and B-movies)
  
 [**Timeless Classic Movies**](https://www.youtube.com/@TimelessClassicMovies) (Public domain classic movies from the Golden Age of Hollywood)
 
