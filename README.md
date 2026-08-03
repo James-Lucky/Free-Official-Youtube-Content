@@ -54,9 +54,11 @@ Also a big thanks to [all the members of the FMHY Discord server](https://github
 
 [**Aniplex USA**](https://www.youtube.com/@AniplexUSA) (Trailers, OPs/EDs, and clips from major series like Demon Slayer and Fate)
 
-[**Bushiroad Official Channel**](https://www.youtube.com/@bushi_PR) (Promotional content, clips, and sometimes full episodes related to their franchises)
-
 [**Bandai Namco Filmworks Channel**](https://www.youtube.com/@bandainamcofilmworks/) (Official channel featuring trailers, music videos, and promotional content for anime produced by Bandai Namco Filmworks)
+
+[**BEYBLADE English - Official Channel**](https://www.youtube.com/beybladeofficial) 
+
+[**Bushiroad Official Channel**](https://www.youtube.com/@bushi_PR) (Promotional content, clips, and sometimes full episodes related to their franchises)
 
 [**Cartoon PowerUP**](https://www.youtube.com/@CartoonPowerUp) (Inactive, mostly anime, some cartoons)
 
